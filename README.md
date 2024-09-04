@@ -16,7 +16,7 @@ Aplikasi pkv games bisa Anda gunakan sebagai gerbang untuk bermain games-games s
 8. Bandarpoker
 9. AduQQ
 
-Sembilan games tersebut bisa Anda nikmati jika Anda terdaftar di situs [AhliQQ.cards](https://ahliqq.cards/) dengan mudah dan gratis. Games ini nantinya bisa main jika memakai aplikasi.
+Sembilan games tersebut bisa Anda nikmati jika Anda terdaftar di situs [AhliQQ.vip](https://ahliqq.vip/) dengan mudah dan gratis. Games ini nantinya bisa main jika memakai aplikasi.
 
 Silahkan download aplikasinya [klik sini](https://github.com/agen-pkv-games/ahliqq/raw/main/ahliqq.apk).
 
